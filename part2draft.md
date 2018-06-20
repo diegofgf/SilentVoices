@@ -182,7 +182,7 @@ He froze at that gesture feeling uneasy. All breeze - good and bad - was gone fr
 
 ### Chapter IV - Shock
 
-The bassline and kick come back and shatter the ephemeral mirror with powerful low-frequency waves. The reflection of his face fades away, and the dancefloor jumps back into action, cherishing the return of the beat. 
+The bass drops like a stone in a placid lake and shatters the ephemeral mirror with powerful sound waves. The reflection of his face fades away, and the dancefloor jumps back into action, cherishing the return of the beat. The growing crowd smiles and punches the air, pacing to the hypnotic rhythim.
 
 He wakes from the reverie with the phantasm of the empty glass hovering atop his untouched one.
 
