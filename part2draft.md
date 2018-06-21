@@ -10,13 +10,13 @@ A man dressed in a fine silk vest and chalk striped dress pants leans over the d
 
 People call him Skull.
 
-His legs shift and pace without going anywhere. He feels uneasy being alone in a nightclub with just a single malt for his company. Nowadays, he is more used to filling cups up than emptying them down. Many months have passed since the last time he drank or partied in any fashion. But tonight, a good friend thought it would be only proper to serve his best barman with the best spirit in the house.
+His legs shift and pace without going anywhere. He feels uneasy being alone in a nightclub with just a single malt for his company. Nowadays, he is more used to filling cups up than emptying them down. Over a year has passed since the last time he drank or partied in any fashion. But tonight, a good friend thought it would be only proper to serve his best barman with a glassfull of the best spirit in the house.
 
 The friend is not there though.
 
 The air is thick with the intense vibrations of electronic music. The surface of the liquid shivers nonstop under the constant humming of the subs, and wobbles rhythmically as the kick hits in precise and powerful bass waves. His ebony skin, tired but wrinkleless, itches with the constant buzz. Still, he hears only the echoing of his own thoughts. *Ow, babe girl...How'd I put a smile in'ya face?* Moments ago, his best efforts provoked nothing but ephemeral laughs. *If I could just gift'y'a smile that last... Just for'ya birthday night...Blondie...*
 
-This is supposed to be a special occasion. Their crew would meet to party together after a long time. They intended to celebrate many things: Skippy's big show, Scarlet's visit to town, Spin's first major gig, and especially Blondie's first birthday with them. Everyone promised to make this a big night, and toast to their reunion. 
+This is supposed to be a special occasion. Their crew would meet to party together after a long time. They intended to celebrate many things: Skippy's big show, Scarlet's visit to town, Spin's first major gig, and especially Blondie's first birthday party with them. Everyone promised to make this a big night, and toast to their reunion. 
 
 No one else is there though.
 
@@ -28,7 +28,7 @@ He remembers how reckless he used to be during his teens and has been observing 
 
 He felt helpless, watching it all like a spectator in a horror movie.
 
-*What do I do with'ya babe angel?* He thinks concerned. If someone told him to chill out and take it easy when he was her age, he would only go harder. His dearest desire is to hug her tight like a big brother protecting a little sister from nightmares. He wants to tickle her until endless laughs make her breathless and incapable of sadness. But life is never so simple. He is not her brother. She is not so little anymore. And even if he manages the tickling, the sorrow will creep back in as soon as he lets her go. He knows as much.
+*What do I do with'ya babe angel?* He thinks concerned. If someone told him to chill out and take it easy when he was her age, he would only go harder. His dearest desire is to hug her tight like a big brother protecting a little sister from nightmares. He wants to tickle her until endless laughther makes her breathless and incapable of sadness. But life is never so simple. He is not her brother. She is not so little anymore. And even if he manages the tickling, the sorrow will creep back in as soon as he lets her go. He knows as much.
 
 He disentangles his fingers and slides them around his sunken cheeks, reaching up and pressing against his temples as if to hold his head - heavy with worries - from falling inside the alcoholic refuge. 
 
@@ -38,9 +38,9 @@ The man looking back at him from the liquid mirror carries a shade of death in h
 
 He saw that same shadow in Blondie's lost gaze tonight.
 
-*Am'I to blame?* He wonders; perhaps his eyes are just a reflection of hers, evoked by a sense of guilt that grows since they met. 
+*Am'I to blame?* He wonders; perhaps his eyes are just a reflection of hers, evoked by a growing weight he carries since they met. 
 
-Violins and chorus of melodic voices build up in the background, and the dancefloor relaxes to a minimal sway, resembling boats in a windless bay. The mood of the tone drifts his mind to the innocent girl she was. He stares into the glass, and through the dark amber lagoon, his restless thoughts sail toward that fateful night in the past.
+Violins and chorus of melodic voices build up in the background, and the dancefloor relaxes to a minimal sway, resembling boats in a windless bay. The mood of the tone drifts his mind to the innocent girl she was. He stares into the glass, and through the dark amber lagoon, his restless thoughts sail toward that fateful night years ago.
 
 ### Chapter II - Lightning 
 
@@ -56,7 +56,7 @@ Hats stopped the grinding and looked up, with a minimal smile on his face, and t
 
 "I'm working. You know, right?" Hats asked with an intense and slow cadence that edged toward a threat.
 
-"Don't'ya gi'me that gangsta shit buddy, I was rollin'on da'guetho when y'were huggin'ur teddy" He said back in a dismissive tone, already halfway to a laugh.
+"Don't'ya gi'me that gangsta shit buddy," He said back in a dismissive tone, already halfway to a laugh, "I was ready'rollin'on da'guetho when y'were'till huggin'ur teddy!"
 
 Hats laughed out joining in, his eyes contracting and chest heaving. He turned his face away from the tray barely in time. "Fuck me Skull, that's why I love you." He separated a generous portion from the small pile of dust and slid it to the side. He laid the card flat over the portion and pressed down hard on it while he drew another card from his pocket. "And cause I love you my negga, I serve you properly. You want this to be fine, no little chunks left behind to fucking drip down your throat and spoil your vibe with a gag."
 
@@ -186,9 +186,23 @@ The bass drops like a stone in a placid lake and shatters the ephemeral mirror w
 
 He wakes from the reverie with the phantasm of the empty glass hovering atop his untouched one.
 
-The old jokes about the Bullet echo in his head stripped of fun and make him feel sick. He should not have served her that night. *Would that have changed anything?* He tries to believe it would not. But no amount of rationalisation is enough to push away the heavy feelings he carries within.
+The old jokes about the Bullet echo in his head stripped of fun and make him feel sick. He should not have served her that night. *Would that have changed anything?* He tries to believe it would not. But no amount of rationalisation is enough to push away the disconfort that builds up on his stomach. After months feeling restless about his part in Blondie's self destructive path, he has nowhere else to run. The tension within grows into pain - a trapped animal trying to climb out from his depths. Burning claws scratch their way up through his esophagos, willing to come out as srieks and tears.
 
-**...**
+His hands shake as he holds down the urge to scream. A splash of wisky wobbles out of the glass and falls on his skin. The dropplets whisper to him *Lick me... Drink me... Drown your pain on me.*
+
+He leans forward toward the numbness promised by the dark amber lake held in his hands. His nose plays above the edge, taking deep breaths from the aromathic fumes. The burning inside him writhes in antecipation, wishful and fearful at the same time. He wants to jump in, drain it all in a single gulp and head to the bar for a bottle that will keep him swiming in confort through this hard night. *I could do this. Just tonight, just to endure the sight of her sadness, and to hold back my own.*
+
+The beat calms down once more, allowing the dancers to rest for a momment and refill empty glasses on the bar. The loud laugherther from a party seating on the next booth breaks through the music and draws his attention. 
+
+A sinnuous brunnet in a tight blue dress points a finger out and shouts, "Here it comes!"
+
+He follows her finger and sees a server approaching with a tray filled with shots
+
+
+
+*Maybe it will even help put a smile on her face...*
+
+The droplets are smooth and sweet in his tongue as he licks them up from his hand. 
 
 ---------------------------------------------------------------------
 
