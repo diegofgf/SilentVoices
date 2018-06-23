@@ -194,15 +194,27 @@ He leans forward toward the numbness promised by the dark amber lake held in his
 
 The beat calms down once more, allowing the dancers to rest for a momment and refill empty glasses on the bar. The loud laugherther from a party seating on the next booth breaks through the music and draws his attention. 
 
-A sinnuous brunnet in a tight blue dress points a finger out and shouts, "Here it comes!"
+A sinnuous brunnet in a tight blue dress points a finger out and shouts, "Here it comes!" Her full lips open in a wide grin, flashing perfect white teeth.
 
-He follows her finger and sees a server approaching with a tray filled with shots
+He follows her finger and sees a server in a funnel black dress approaching with a tray filled with shots. 
+
+The group celebrates her approach, and they proceede to toast and shug shot after shot. A moment latter the server turns back, carrying the tray with a colection of empty glasses toward the bar. On her way back, she throws a side glance his way, first checking his drink to see if she was needed, then looking at his eyes, sporting a shy smile and noding before resuming towards the bar. The group laugher comes back even louder, with every cheerful face more ecxited than before. They jump from their seats and head to the dancefloor.
+
+His eyes dart back to the voluptuous mahogamy surface.
+
+*What kind of company am I? That won't even toast and drink to a friend's birthday.* Those people would party hard tonight, endure a Sunday hangover, and fall back in line for their ordinary lives on Monday morning. For most of them, alcohol was just a placid lake for a relaxing swim. *Ow boy, can I stay in the shallows just this night?* He sways the glass a bit, staring at the wavering liquid, and wonders if those waves will turn into a binge tide, dragging him to the depths he avoids.
+
+*Oh fuck it! Maybe it will help put a smile on her face...* He angles the glass to his lips, and the first sip of old single malt touches his tongue like honey and silk, carresing its way down his troath to meet with the hungry beast that awaits for the calming nectar. 
+
+There's a brief moment of rejoice.
+
+The silk fades, the sweetness turns bitter and a stinging heat rises all the way from his stomach to his mouth. After such a long time abstinent, his palate is unnused to the liquor's edge. With a grimace, he backs away from the glass, startled.
+
+The shock is like a gust of warm wind blowing against the sails of his mind, and he drifts off toward his first memory with the burning liquid.
+
+### Chapter V - Afloat
 
 
-
-*Maybe it will even help put a smile on her face...*
-
-The droplets are smooth and sweet in his tongue as he licks them up from his hand. 
 
 ---------------------------------------------------------------------
 
