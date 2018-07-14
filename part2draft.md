@@ -214,6 +214,44 @@ The shock is like a gust of warm wind blowing against the sails of his mind, and
 
 ### Chapter V - Afloat
 
+The ocean wind of the bright summer day carressed his skin with a warmness reserved for loved ones. He swayed up and down to the flavour of waves, small feet slightly spread apart atop wood boards that murmured under the small pressure of his weight, still building confidence to keep his balance on the deck of the fishing boat. Just ahead, his father held his older brother's hands to the wheel!, teaching him how to steer the vessel. His old eyes were focused, the skin marked by years of sun and salt water wrinkling with a soft satisfaction. By the side, his mother sunbathed, joy glowing all over her ebony perfection. 
+
+After years hearing the same promisse over and over again, his old man finally managed to lend the fishing boat in which he worked to take the family on a leisure day over the clear bay waters beyond the dirty docks where they lived.
+
+He was nine years old, and this was the happiest day of his life.
+
+The ship ascended over a bigger wave, and came down harder, causing a splash. Cold ocean water sprayed all over the deck, sprinkling on his face and soaking his mom. She let out a startled hiss, contracting to her left side in surprise.
+
+They all laughed together with sonorous unity. The sound of satisfaction achieved through hardness. Many were the days they worked cleaning the same boat that now carried them in gentle sway. His nose had grown so used to the stench of fish and man once the ship came to shore, that he could not even smell the residual perfume that was left on the wood after yesterday's cleanup.
+
+He looked behind, towards the port that srinked in the distance. Even smaller was the faraway city, the tall highrising that he never visited reduced to toy-size buildings but a jungle of concrete that fit in the palm of his hand.
+
+"Ohhh'boy what'a'day!" Came the booming voice of his father above the silent hissing of the breeze. "This deserves a toast or two, eh?"
+
+His mother let out a !minimal confirming laugh! 
+
+"Hey son, grab us the cooler from the storage box," his father continued, looking at him, lips contracting toward a smile.
+
+He jumped to obey, crossing the short distance to the chest with the fastest strides he dared, not to lose his footing. He oppened the cranky lid and lifted the heavy cooler, sporting a grim. In his mind, the task played as a daydream where he was a pirate, finally oppening the threasure chest after a long journey following some bathered map. Crossing the distance back toward his family, he lowered the hard plastic case down with a thump, patting the prize. His brother's eyes met his, and he knew they shared the same fantasy.
+
+"Gooo'boy! Now, hand ya'mother a beer, eh?"
+
+As he kneeled down and oppened the cooler, cold air came up to his face from the ice. He digged his fingers through the chilling blocks and grabbed a can of Bay Lagger, taking it the few steps to his mom's waiting hand.
+
+"Thank you darling," she said. Her caring voice warmer then ever.
+
+He went back to take another can to his father, but was stopped as soon as he kneeled by the cooler.
+
+"Oh no. This day deserves something special, get me the bottle and glass from the tool box, will'ya?. Over there," he said pointing past the storage he had just came from.
+
+He hassled to comply once more, honoured to tend to his captain. Even more so, since such a good mood was a rare catch on his strict father's spirit.
+
+
+
+
+
+
+
 
 
 ---------------------------------------------------------------------
