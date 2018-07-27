@@ -242,9 +242,60 @@ As he kneeled down and oppened the cooler, cold air came up to his face from the
 
 He went back to take another can to his father, but was stopped as soon as he kneeled by the cooler.
 
-"Oh no. This day deserves something special, get me the bottle and glass from the tool box, will'ya?. Over there," he said pointing past the storage he had just came from.
+"Oh, no. This day deserves something special; get me the bottle and glass from the tool box, will'ya?. Over there," he said pointing past the storage where the cooler was, and throwing a small key.
 
-He hassled to comply once more, honoured to tend to his captain. Even more so, since such a good mood was a rare catch on his strict father's spirit.
+He hassled to comply once more. His mind told the tale of a sailor honoured to tend to his captain. His heart was jubilant with the rare catch of such a good mood on the old man's spirit.
+
+Unlocking the tool box, he came to realize the real treasure laid there. Differente of the storage, the box was kept in pristine condition, with every tool meticulously organized. A green metal case laid inside. Openning it, he found a smoky bottle, labbeled  with the drawing on and old man and all sorts of seals and coat of arms that addeed wood to the fire of his daydream quest.
+
+He closed the case and took it with the ultmost care, his feet ever wary of the constant sway. Back to his father, he looked at him with questioning eyes.
+
+"Now, pour me two fingers. Mind not to spill a drop."
+
+He placed the case atop the cooler, and mimicked the steps he had seen his old man perform so many times at their own place, once he was back from fishing. The cork came out with a pop and release a strong smell he could not yet understand. His small hands held the body tight and tilted the throath untill the precious liquid streamed down. The sea god's must have blessed him, for the water was still during the whole time, preventing any mistake. At last he delivered the woody gold to the calused waiting hand.
+
+White teeth flashed wide in the old man's face like a lighthouse's beacon in the night.
+
+"Well done son," boomed his voice, happy and proud. "Now, put it all back where you found it."
+
+Locking the toolbox, he turned to find his family close together, waiting him for a toast. His brother held a sweating can of cola in his direction.
+
+He took his treat and squeezed his finger under the tab.
+
+
+### Shallows
+
+*TssSSss kr-POP!* The can hissed in his hand. The cracking sound echoed above the street noises for a second, bouncing of the dirty brick walls of the smelly alleyway. They were between two low-rising appartments, just a few blocks from their home.
+
+He looked from the cola to his brother's mischievous eyes. "Are you sure about this?"
+
+His brother held on to a bottle of rum, hiding it under his coat. "Dad won't know. He has no idea how much is in each bottle, and it will be days till he gets back. I'll just slip it back into the cabbinet once Mom goes to sleep. Easy peasy."
+
+"What about the bottle? We can't just carry it around"
+
+"Don't ya worry. I'm gonna hid it right here -"
+
+"Like a treasure," he finished. A connivent smile slid into his lips.
+
+"Finaly, pirates!" his older brother concluded, and popped the bottle open. "Now drink some of the soda so I can mix it in."
+
+He drained a third in large gulps and extended the can forward. As the rum dripped inside, a mix of feelings poured in him. The cold air in the alleyway was stale and pungent, but, in his mind, warm winds carrying ocean smell blew strong and filled imaginary sails. 
+
+Finally, at eleven years old, he got to depart in his first adventure to the lands of adulthood.
+
+His hand shook for a moment, and some liquor spilled over the top of the can, pooling around the oppening. He clutched the soda, almost bending the metal inward, waiting for his brother to repeat the procedure for himself. Once the drinks were ready, and the bottle burried away in a dark crevice behind a garbage bin, they toasted.
+
+His naive lips made contact with the rim, and sucked in the drops of pure rum from the top. The strange liquid glided into his mouth. For a moment, the unexpected texture lit up a spark of curiosity at the disconvery of something new. Then, he burned, as the liquid fire set every inch of his skin, from lips to stomach, on fire.
+
+A cloud of saliva spluttered out of his mouth, as he coughed, spit, choked and cried, trying to douse the flames. "What the fuck brow! This thing is nasty!" His eyes contracted in agony.
+
+Laughing, his brother gave a few taps on his back. "Give it a good swril first bruh, otherwise your rookie's tender flesh will burn."
+
+"Oh! Tell me about it Cap!"
+
+
+
+
 
 
 
