@@ -273,7 +273,7 @@ His brother held on to a bottle of rum, hiding it under his coat. "Dad won't kno
 
 "What about the bottle? We can't just carry it around"
 
-"Don't ya worry. I'm gonna hid it right here -"
+"Don't ya worry. I'm gonna hide it right here -"
 
 "Like a treasure," he finished. A connivent smile slid into his lips.
 
@@ -287,12 +287,49 @@ His hand shook for a moment, and some liquor spilled over the top of the can, po
 
 His naive lips made contact with the rim, and sucked in the drops of pure rum from the top. The strange liquid glided into his mouth. For a moment, the unexpected texture lit up a spark of curiosity at the disconvery of something new. Then, he burned, as the liquid fire set every inch of his skin, from lips to stomach, on fire.
 
-A cloud of saliva spluttered out of his mouth, as he coughed, spit, choked and cried, trying to douse the flames. "What the fuck brow! This thing is nasty!" His eyes contracted in agony.
+A cloud of saliva spluttered out of his mouth, as he coughed, spit, choked and cried, trying to douse the flames. "What the fuck brow! This thing is nasty!" His face contracted in agony, eyes squinting.
 
-Laughing, his brother gave a few taps on his back. "Give it a good swril first bruh, otherwise your rookie's tender flesh will burn."
+Laughing, his brother gave a few taps on his back. "Give it a good swril first bruh, otherwise your rookie's tenderness will burn."
 
-"Oh! Tell me about it Cap!"
+**NEEDS FIXING**
 
+"Oh! Tell me about it Cap! Shiit!" He kept cursing and spiting, barelly holding on to the drink.
+
+"Here bruh, have a few sips of my coke to wash it down, and then hold my can so I can spice my drink, hhnnK?"
+
+He grabbed the new can pointed in his direction and took some large gulps, reliefe washed over his grimmace. Once liquour poured into the second can, he mimicked his brother, swirling the can and cleaning the remaining run from the rim with his shirt. He watched anxiously while his captain tucked the bottle behind a bin and threw some cardboard on top to complete the escondeirijo.
+
+"Are you ready to take off, sailor?"
+
+"Yo betcha, Cap!"
+
+"Cheers!" They said together as their cans clacked in a toast. He took a carefull sip at first, trying to understand the strange liquid that was both sweet and spicy, bubbly and harsh, not undrinkable but certainly not easy to appreciate. Looking up from the drink with corner of his eyes, he met his brother expectant gaze.
+
+"How's that now, bruh?"
+
+"Waybetter," he said with a smirk lurking on his lips.
+
+"See, ya just listen to me and ya'll do just fine. Your big brow knows stuff."
+
+"Sure thing, that's why you're the Captain." They both laughed at that and edged out of the alleyway.
+
+**NEEDS FIXING**
+
+Following an intrepid wind they set sail through the streets, their course bounced off the dense, warm gusts produced by the churning stream of cars and busses and swirled toward the fresh currents that blew around a nearby park.
+
+Sip after sip, the odd concoction grew on his palate. At first the bitter and dry lingering aftertaste filled his mind with doubts and caution, but he kept at it, to quench the very thirst the drink produced. The cola sweetness and fizyness that came first was a promissing refuge, always inducing a next sip to wash away the last.
+
+The park was filled with mapple trees painted in a range of greens, golden yellows and occasional earthy reds. The fresh breeze of early auntum lazilly carried some loose leaves, but proppelled him at full speed after his brother in a game of catch filled with new tastes. With carefull steps, measure to prevent any spills, he ran after his old brother that somehow always managed to stay ahead. It had been years since the old game felt so exiting, and joy overpoured out of him.
+
+The troubling spice subdued, sunk under mellow, bubbly waves until he could not feel it any longer. Caution became foundness, and soon he wondered how he could have doubted his captain about such a sweet venture.
+
+His steps became less firm but the grip on the can tighter. The solid ground under his feet wavered - a sea of brownish, dieing grass that felt more alive than in full blown summer. He ran no more, but cruised over the liquid earth, soaring above wavy hills. At every dodge from his brother he giggled and at every taunt he laughed.
+
+In one of the few moments they took a break to catch their breath, his brother danced and teased him with some pop tune turned to "too slow broooow, too slow broooow."
+
+Tired from the measured chase, and parched by the effort, he drained the remaing contents of the can and trew it aside. A fire burned inside him. Abandoning all caution, he dashed toward his target, gliding in the air that now felt hot, and letting out a wild roar. His flight was anything but straight, yet the impetous of the charge took his brother by surprise, who confused about what to do with his own can, lost precious seconds to flee.
+
+He tackled, connecting at full speed.
 
 
 
