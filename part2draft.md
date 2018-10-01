@@ -263,7 +263,7 @@ Locking the toolbox, he turned to find his family close together, waiting him fo
 He took his treat and squeezed his finger under the tab.
 
 
-### Shallows
+### Chapter VI - Shallows
 
 *TssSSss kr-POP!* The can hissed in his hand. The cracking sound echoed above the street noises for a second, bouncing of the dirty brick walls of the smelly alleyway. They were between two low-rising appartments, just a few blocks from their home.
 
@@ -323,7 +323,7 @@ The park was filled with mapple trees painted in a range of greens, golden yello
 
 The troubling spice subdued, sunk under mellow, bubbly waves until he could not feel it any longer. Caution became foundness, and soon he wondered how he could have doubted his captain about such a sweet venture.
 
-His steps became less firm but the grip on the can tighter. The solid ground under his feet wavered - a sea of brownish, dieing grass that felt more alive than in full blown summer. He ran no more, but cruised over the liquid earth, soaring above wavy hills. At every dodge from his brother he giggled and at every taunt he laughed.
+His steps became less firm but the grip on the can tighter. The ground under his feet wavered - a sea of brownish, dieing grass that felt more alive than in full blown summer. He ran no more, but cruised over the liquid earth, soaring above wavy hills. At every dodge from his brother he giggled and at every taunt he laughed.
 
 In one of the few moments they took a break to catch their breath, his brother danced and teased him with some pop tune turned to "too slow broooow, too slow broooow."
 
@@ -331,6 +331,37 @@ Tired from the measured chase, and parched by the effort, he drained the remaing
 
 He tackled, connecting at full speed.
 
+They fell and rolled into the ground that felt solid once more, sending clouds of dust with dried leaves flying in the wake of their little wreckage.
+
+In his mind they rolled down a hill, their bouncing motion extended over a time that was too long to make sense otherwise. His fingers sank into the soil in an effort to hold him steady. It took him a moment to proccess that he had stopped long ago, and it was the world that kept spinning around him. He felt dizzy and sick but otherwise had no pain from bruises that were certainly there. Lying on his back, silent, he worried that his brother would be mad at him.
+
+
+
+### Chapter VII - Depths
+
+loses the bottle, brother starts dealing
+
+### Chapter VIII - Storm
+
+Blondie no show, cristal off to the washroom, skull of to a dubbie.
+
+### Chapter IX - Wreckage
+
+brother owns money, dead cop, shooting, dead mother
+
+### Chapter X - Drowned
+
+alcoholism, dead father
+
+### Chapter XI - Bottom
+
+alcoholism, crack
+
+### Chapter XII - Castaway
+
+ambulance comes in, Blondie leaves on a stretcher, skull drinks
+
+### Interlude II - Whispers
 
 
 
@@ -338,11 +369,7 @@ He tackled, connecting at full speed.
 
 
 
-
-
-
-
----------------------------------------------------------------------
+v-----------------------
 
 
 
