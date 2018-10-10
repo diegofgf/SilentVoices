@@ -333,11 +333,18 @@ He tackled, connecting at full speed.
 
 They fell and rolled into the ground that felt solid once more, sending clouds of dust with dried leaves flying in the wake of their little wreckage.
 
-In his mind they rolled down a hill, their bouncing motion extended over a time that was too long to make sense otherwise. His fingers sank into the soil in an effort to hold him steady. It took him a moment to proccess that he had stopped long ago, and it was the world that kept spinning around him. He felt dizzy and sick but otherwise had no pain from bruises that were certainly there. Lying on his back, silent, he worried that his brother would be mad at him.
+In his mind they rolled down a hill, their bouncing motion extended over a time that was too long to make sense otherwise. His nails sank into the soil in an effort to hold him steady. It took him a moment to proccess that he had stopped long ago, and it was the world that kept spinning around him. Grey clouds spiralled in the sky making his mind dizzy and his stomach sick but otherwise he felt no pain from bruises that were certainly there. Lying on his back, fingers clutching dry grass roots, he remained quiet, waiting for angry shouts.
 
+A low giggle broke the tense silence, and without understanding why, he joinned in. Together their chuckle became a blown out laughter and grew out of control. 
 
+Loose words spluttered out of his mouth, "Jet'chase-" trying to form sentences between violent gasps for air "Tag'ship-" and involuntary noises "Wreck'ya-" but ultimatelly failing "Hill'fall..." as he heaved, turned into his side and contracted into a ball hugging his stomach, trying to stop the cackle and the innevitable hickups that followed.
+
+They remained there, enjoying the warm flow of shallow jokes and comments that kept their unworried smiles drifting onward, until a first dropplet of water hit their faces, and announced the comming of a cold rain.
 
 ### Chapter VII - Depths
+
+The reurn 
+
 
 loses the bottle, brother starts dealing
 
