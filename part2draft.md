@@ -182,71 +182,75 @@ He froze at that gesture feeling uneasy. All breeze - good and bad - was gone fr
 
 ### Chapter IV - Shock
 
-The bass drops like a stone in a placid lake and shatters the ephemeral mirror with powerful sound waves. The reflection of his face fades away, and the dancefloor jumps back into action, cherishing the return of the beat. The growing crowd smiles and punches the air, pacing to the hypnotic rhythim.
+The bass drops like a stone in a placid lake, shattering the ephemeral whisky-mirror with powerful vibrations and the reflection of his sombre face wavers away. The dancefloor jumps back into action, cherishing the return of the beat. The growing crowd smiles, punches the air, and stomps the ground to the hypnotic rhythm.
 
-He wakes from the reverie with the phantasm of the empty glass hovering atop his untouched one.
+He wakes from the reverie with the phantasm of the empty glass hovering atop the full one he still clutches.
 
-The old jokes about the Bullet echo in his head stripped of fun and make him feel sick. He should not have served her that night. *Would that have changed anything?* He tries to believe it would not. But no amount of rationalisation is enough to push away the disconfort that builds up on his stomach. After months feeling restless about his part in Blondie's self destructive path, he has nowhere else to run. The tension within grows into pain - a trapped animal trying to climb out from his depths. Burning claws scratch their way up through his esophagos, willing to come out as srieks and tears.
+The old jokes about the Maiden's Bullet echo in his head, like a sweet fruit that turns sour and eventually becomes rancid. He should not have served her that night. *Woul'dat change anything?* He tries to believe it would not. But no amount of rationalization is enough to push away the nausea that builds up in his stomach. After months feeling restless about his part in Blondie's self-destructive path, he has nowhere else to run. The tension within grows into pain - a trapped animal tries to climb out from his depths - burning claws scratch their way up through his esophagus, willing to come out as shrieks and tears.
 
-His hands shake as he holds down the urge to scream. A splash of wisky wobbles out of the glass and falls on his skin. The dropplets whisper to him *Lick me... Drink me... Drown your pain on me.*
+His hands shake as he holds down the urge to scream. A splash of whisky wobbles out of the glass and falls on his skin. The seductive droplets whisper *Lick me... Drink me... Drown your pain in me.*
 
-He leans forward toward the numbness promised by the dark amber lake held in his hands. His nose plays above the edge, taking deep breaths from the aromathic fumes. The burning inside him writhes in antecipation, wishful and fearful at the same time. He wants to jump in, drain it all in a single gulp and head to the bar for a bottle that will keep him swiming in confort through this hard night. *I could do this. Just tonight, just to endure the sight of her sadness, and to hold back my own.*
+He leans forward toward the numbness promised by the dark amber lake held in his hands. His nose plays above the edge, taking deep breaths from the aromatic fumes. The burning inside him writhes in anticipation, wishful and fearful at the same time. He wants to jump in, drain it all in a single gulp and head to the bar for a bottle that will keep him swimming in comfort through this hard night. *I could... Jus'tonight... Jus'to endure da'sight of her sadness, and hol'back ma'own.*
 
-The beat calms down once more, allowing the dancers to rest for a momment and refill empty glasses on the bar. The loud laugherther from a party seating on the next booth breaks through the music and draws his attention. 
+The beat calms down once more, allowing the dancers to rest for a moment and refill empty glasses at the bar. Loud laughter breaks above the soft melody and draws his attention to a party seating on the next booth. A sinuous brunette in a tight blue dress points a finger out and shouts, "Here it comes!" Her full lips open in a wide grin, flashing perfect white teeth.
 
-A sinnuous brunnet in a tight blue dress points a finger out and shouts, "Here it comes!" Her full lips open in a wide grin, flashing perfect white teeth.
+He follows her finger and sees a server in a funnel black dress, who approaches balancing a tray with a champagne bottle topped with a sparkling candle and surrounded by empty flutes and colourful shots. 
 
-He follows her finger and sees a server in a funnel black dress approaching with a tray filled with shots. 
+The group celebrates her arrival, and they proceeded to toast and chug shot after shot. A moment later the server turns back, carrying the tray with a collection of now empty glasses toward the bar. On her way back, she throws a side-glance his way, first checking his drink to see if she was needed, then looking at his eyes. 
 
-The group celebrates her approach, and they proceede to toast and shug shot after shot. A moment latter the server turns back, carrying the tray with a colection of empty glasses toward the bar. On her way back, she throws a side glance his way, first checking his drink to see if she was needed, then looking at his eyes, sporting a shy smile and noding before resuming towards the bar. The group laugher comes back even louder, with every cheerful face more ecxited than before. They jump from their seats and head to the dancefloor.
+He can almost hear her thoughts, as her lips barely curve, freezing between a shy but empathic smile and disappointment. Lurking in her confused expression is the inevitable conclusion that she will see no tips out of an almost empty table, where a single sad customer refuses to drink. She nods and resumes onward.
 
-His eyes dart back to the voluptuous mahogamy surface.
+The group laugher comes back even louder, every cheerful face more excited than before. They jump from their seats and head to the dancefloor.
 
-*What kind of company am I? That won't even toast and drink to a friend's birthday.* Those people would party hard tonight, endure a Sunday hangover, and fall back in line for their ordinary lives on Monday morning. For most of them, alcohol was just a placid lake for a relaxing swim. *Ow boy, can I stay in the shallows just this night?* He sways the glass a bit, staring at the wavering liquid, and wonders if those waves will turn into a binge tide, dragging him to the depths he avoids.
+His eyes dart back to the voluptuous mahogany surface.
 
-*Oh fuck it! Maybe it will help put a smile on her face...* He angles the glass to his lips, and the first sip of old single malt touches his tongue like honey and silk, carresing its way down his troath to meet with the hungry beast that awaits for the calming nectar. 
+*Wha'kinda company am I? Won't even toast n'drink to a friend's birthday.* Those people would party hard tonight, endure a Sunday hangover, and fall back in line for their ordinary lives on Monday morning. For most of them, alcohol was just a placid lake for a relaxing swim. *Oh boy, can I stay in the shallows just this night?* He sways the glass a bit, staring at the wavering liquid, and wonders if those waves will turn into a binge tide, dragging him down.
 
-There's a brief moment of rejoice.
+*Oh fuck it! Maybe it will help put a smile on her face.* He angles the glass to his lips, and the first sip of old single malt touches his tongue like honey and silk, caressing its way down his throat to calm the parched beast.
 
-The silk fades, the sweetness turns bitter and a stinging heat rises all the way from his stomach to his mouth. After such a long time abstinent, his palate is unnused to the liquor's edge. With a grimace, he backs away from the glass, startled.
+During a brief moment, he rejoices on the calming nectar.
 
-The shock is like a gust of warm wind blowing against the sails of his mind, and he drifts off toward his first memory with the burning liquid.
+The silk fades, the sweetness turns bitter, and a stinging heat rises all the way from his stomach to his mouth. After such a long time abstinent, his palate is unused to the liquor's edge. Startled, he backs away from the glass with a grimace.
+
+The shock is like a warm gust blowing against the sails of his mind, and he drifts off toward his first memories with the burning liquid.
 
 ### Chapter V - Afloat
 
-The ocean wind of the bright summer day carressed his skin with a warmness reserved for loved ones. He swayed up and down to the flavour of waves, small feet slightly spread apart atop wood boards that murmured under the small pressure of his weight, still building confidence to keep his balance on the deck of the fishing boat. Just ahead, his father held his older brother's hands to the wheel!, teaching him how to steer the vessel. His old eyes were focused, the skin marked by years of sun and salt water wrinkling with a soft satisfaction. By the side, his mother sunbathed, joy glowing all over her ebony perfection. 
+The ocean wind of the bright summer day touched his skin with a warmness reserved for loved ones. He rocked up and down to the flavour of waves - small feet spread apart atop wood boards that murmured under the slight pressure of his weight - still building confidence to keep his balance on the deck of the fishing boat. 
 
-After years hearing the same promisse over and over again, his old man finally managed to lend the fishing boat in which he worked to take the family on a leisure day over the clear bay waters beyond the dirty docks where they lived.
+By the side, his father held his older brother's hands to the wheel, teaching how to steer the vessel. He seemed focused, the skin around his old eyes, marked by years of sun and saltwater, wrinkling with a soft satisfaction. On the bow deck, his mother sunbathed, joy glowing all over her oiled ebony perfection. 
 
-He was nine years old, and this was the happiest day of his life.
+After years of hearing the same promises over and over again, his old man finally managed to lend the fishing boat in which he worked to take the family on a day cruise. He and his brother had been ecstatic, for they played pirates make-believe every night, pretending the couch was their ship. 
 
-The ship ascended over a bigger wave, and came down harder, causing a splash. Cold ocean water sprayed all over the deck, sprinkling on his face and soaking his mom. She let out a startled hiss, contracting to her left side in surprise.
+He was nine years old, and to be in an actual boat over the bright, bay waters beyond the dirty docks where they lived was a dream come true.
 
-They all laughed together with sonorous unity. The sound of satisfaction achieved through hardness. Many were the days they worked cleaning the same boat that now carried them in gentle sway. His nose had grown so used to the stench of fish and man once the ship came to shore, that he could not even smell the residual perfume that was left on the wood after yesterday's cleanup.
+The bow tilted upward as the hull ascended over a bigger wave, and came down hard, causing a splash. Cold ocean water sprayed all over the deck, sprinkling on his face and soaking his mom. She let out a startled hiss, contracting to her side in surprise.
 
-He looked behind, towards the port that srinked in the distance. Even smaller was the faraway city, the tall highrising that he never visited reduced to toy-size buildings but a jungle of concrete that fit in the palm of his hand.
+They all laughed together with sonorous unity. The sound of satisfaction achieved through hardness. Many were the days they worked cleaning the same boat that now carried them in gentle sway. His nose had grown so used to the stench of fish once the ship came to shore, that he could not even smell the residual perfume that came from the hold after yesterday's special cleanup.
 
-"Ohhh'boy what'a'day!" Came the booming voice of his father above the silent hissing of the breeze. "This deserves a toast or two, eh?"
+He looked behind, toward the port that shrank in the distance. Even smaller was the faraway city, the high-rises that he never visited reduced to toy-size buildings, but a jungle of concrete that fit in the palm of his hand.
 
-His mother let out a !minimal confirming laugh! 
+"Ohh boy, what'a'day!" Came the booming voice of his father above the hissing of the breeze. "This deserves a toast or two, eh?"
 
-"Hey son, grab us the cooler from the storage box," his father continued, looking at him, lips contracting toward a smile.
+His mother let out a confirming chuckle. 
 
-He jumped to obey, crossing the short distance to the chest with the fastest strides he dared, not to lose his footing. He oppened the cranky lid and lifted the heavy cooler, sporting a grim. In his mind, the task played as a daydream where he was a pirate, finally oppening the threasure chest after a long journey following some bathered map. Crossing the distance back toward his family, he lowered the hard plastic case down with a thump, patting the prize. His brother's eyes met his, and he knew they shared the same fantasy.
+"Hey, son, grab us the cooler from the storage box," his father continued, looking at him, lips contracting toward a smile.
 
-"Gooo'boy! Now, hand ya'mother a beer, eh?"
+He jumped to obey, crossing the short distance to the stern with the fastest strides he dared. He forced the cranky lid up and lifted the heavy cooler, sporting a grin. In his mind, the task played as a daydream where he was a pirate,  opening the treasure chest after a long journey following some battered map. Crossing the distance back toward his family, he lowered the hard plastic case down with a thump, patting the prize. His brother's eyes met his, and he knew they shared the same fantasy.
 
-As he kneeled down and oppened the cooler, cold air came up to his face from the ice. He digged his fingers through the chilling blocks and grabbed a can of Bay Lagger, taking it the few steps to his mom's waiting hand.
+"Goo'boy! Now, hand ya'mother a beer, eh?"
 
-"Thank you darling," she said. Her caring voice warmer then ever.
+As he kneeled down and opened the cooler, cold air came up to his face from the ice. He dug his fingers through the chilling blocks and grabbed a can of Bay Lagger, taking it to his mom's waiting hand.
 
-He went back to take another can to his father, but was stopped as soon as he kneeled by the cooler.
+"Thank you, darling," she said, her caring voice warm like the sun.
 
-"Oh, no. This day deserves something special; get me the bottle and glass from the tool box, will'ya?. Over there," he said pointing past the storage where the cooler was, and throwing a small key.
+He went back to get another can for his father but was stopped as soon as he kneeled down.
 
-He hassled to comply once more. His mind told the tale of a sailor honoured to tend to his captain. His heart was jubilant with the rare catch of such a good mood on the old man's spirit.
+"Oh, no. This day deserves something special; get me the bottle and glass from the toolbox, will'ya? Over there," he said, pointing to the opposite side of the storage and throwing him a small key.
 
-Unlocking the tool box, he came to realize the real treasure laid there. Differente of the storage, the box was kept in pristine condition, with every tool meticulously organized. A green metal case laid inside. Openning it, he found a smoky bottle, labbeled  with the drawing on and old man and all sorts of seals and coat of arms that addeed wood to the fire of his daydream quest.
+He rushed to comply once more, pretending to be a sailor honoured to tend to his captain. His heart was jubilant with the rare catch of such a good mood on his old man.
+
+Unlocking the toolbox, he came to realize the real treasure laid there. Different from the storage, this compartment was kept in pristine condition, with every tool meticulously organized. A green metal case awaited inside. Opening it, he found a smoky bottle, labelled with the drawing of an old man and all sorts of seals and coat of arms that added wood to the fire of his make-believe quest.
 
 He closed the case and took it with the ultmost care, his feet ever wary of the constant sway. Back to his father, he looked at him with questioning eyes.
 
