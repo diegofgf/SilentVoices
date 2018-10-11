@@ -252,105 +252,106 @@ He rushed to comply once more, pretending to be a sailor honoured to tend to his
 
 Unlocking the toolbox, he came to realize the real treasure laid there. Different from the storage, this compartment was kept in pristine condition, with every tool meticulously organized. A green metal case awaited inside. Opening it, he found a smoky bottle, labelled with the drawing of an old man and all sorts of seals and coat of arms that added wood to the fire of his make-believe quest.
 
-He closed the case and took it with the ultmost care, his feet ever wary of the constant sway. Back to his father, he looked at him with questioning eyes.
+He closed the tin and took it with the utmost care, his feet ever wary of the constant sway. Back to his father, he looked at him with questioning eyes.
 
 "Now, pour me two fingers. Mind not to spill a drop."
 
-He placed the case atop the cooler, and mimicked the steps he had seen his old man perform so many times at their own place, once he was back from fishing. The cork came out with a pop and release a strong smell he could not yet understand. His small hands held the body tight and tilted the throath untill the precious liquid streamed down. The sea god's must have blessed him, for the water was still during the whole time, preventing any mistake. At last he delivered the woody gold to the calused waiting hand.
+He placed the case atop the cooler and mimicked the steps he had seen his old man perform so many times at their own place, once he was back from fishing. The cork came out with a pop and release a strong smell he could not yet understand. His small hands held the body tight and tilted the throat until the precious liquid streamed down. The sea gods must have blessed him, for the water was still during the whole time, preventing any mistake. At last, he delivered the woody gold to the callused waiting hand.
 
 White teeth flashed wide in the old man's face like a lighthouse's beacon in the night.
 
-"Well done son," boomed his voice, happy and proud. "Now, put it all back where you found it."
+"Well done son," boomed his voice, happy and proud. "Now, ya'put the run back in place."
 
-Locking the toolbox, he turned to find his family close together, waiting him for a toast. His brother held a sweating can of cola in his direction.
+Locking the toolbox, he turned to find his family close together, waiting for him to toast. His brother held a sweating can of cola in his direction.
 
 He took his treat and squeezed his finger under the tab.
 
 
 ### Chapter VI - Shallows
 
-*TssSSss kr-POP!* The can hissed in his hand. The cracking sound echoed above the street noises for a second, bouncing of the dirty brick walls of the smelly alleyway. They were between two low-rising appartments, just a few blocks from their home.
+*TssSSss krl-POP!* The can hissed in his hand. The cracking sound echoed above the street noises for a second, bouncing off the dirty brick walls in the smelly alleyway. They were between two low-rising apartments, just a few blocks from their home.
 
-He looked from the cola to his brother's mischievous eyes. "Are you sure about this?"
+He looked from the cola to his brother's mischievous eyes. "Are ya'sure about this?"
 
-His brother held on to a bottle of rum, hiding it under his coat. "Dad won't know. He has no idea how much is in each bottle, and it will be days till he gets back. I'll just slip it back into the cabbinet once Mom goes to sleep. Easy peasy."
+His brother held on to a bottle of rum, hiding it under his coat. "Dad won't know. He has no idea how much is in each bottle and will be days till he's back. I'll just slip it inside the cabinet before Mom gets home from work. Easy peasy."
 
-"What about the bottle? We can't just carry it around"
+"What about the bottle? We can't just carry it around."
 
 "Don't ya worry. I'm gonna hide it right here -"
 
 "Like a treasure," he finished. A connivent smile slid into his lips.
 
-"Finaly, pirates!" his older brother concluded, and popped the bottle open. "Now drink some of the soda so I can mix it in."
+"Finally, pirates!" his older brother concluded and popped the bottle open. "Now, drink some of the soda so I can mix it in."
 
 He drained a third in large gulps and extended the can forward. As the rum dripped inside, a mix of feelings poured in him. The cold air in the alleyway was stale and pungent, but, in his mind, warm winds carrying ocean smell blew strong and filled imaginary sails. 
 
 Finally, at eleven years old, he got to depart in his first adventure to the lands of adulthood.
 
-His hand shook for a moment, and some liquor spilled over the top of the can, pooling around the oppening. He clutched the soda, almost bending the metal inward, waiting for his brother to repeat the procedure for himself. Once the drinks were ready, and the bottle burried away in a dark crevice behind a garbage bin, they toasted.
+His hand shook for a moment, and some liquor spilled over the top of the can, pooling around the opening. He clutched the soda, almost bending the metal inward, waiting for his brother to repeat the procedure for himself. Once the drinks were ready, and the bottle buried away in a dark crevice behind a garbage bin, they toasted.
 
-His naive lips made contact with the rim, and sucked in the drops of pure rum from the top. The strange liquid glided into his mouth. For a moment, the unexpected texture lit up a spark of curiosity at the disconvery of something new. Then, he burned, as the liquid fire set every inch of his skin, from lips to stomach, on fire.
+His naive lips made contact with the rim and sucked in the drops of pure rum from the top. The strange liquid glided into his mouth. For a moment, the unexpected texture lit up a spark of curiosity at the discovery of something new. Then, he burned, as the liquid fire set every inch of his skin, from lips to stomach, on fire.
 
-A cloud of saliva spluttered out of his mouth, as he coughed, spit, choked and cried, trying to douse the flames. "What the fuck brow! This thing is nasty!" His face contracted in agony, eyes squinting.
+A cloud of saliva spluttered out of his mouth, as he coughed, spit, choked and cried, trying to douse the flames. "Wha'da'fuck bro! This thing's nasty!" His face contracted in agony, eyes squinting.
 
-Laughing, his brother gave a few taps on his back. "Give it a good swril first bruh, otherwise your rookie's tenderness will burn."
+Laughing, his brother gave a few taps on his back. "Give it a good swirl first Bruh, you're too fresh a rookie to take this before mixing!"
 
-**NEEDS FIXING**
+"Oh! Tell me about it, Cap! Shit!" He kept cursing and spitting, barely holding on to the drink.
 
-"Oh! Tell me about it Cap! Shiit!" He kept cursing and spiting, barelly holding on to the drink.
+"Here bruh," his brother produced a water bottle from his hoodie pocket, "wash it out and don't sweat, ok?"
 
-"Here bruh, have a few sips of my coke to wash it down, and then hold my can so I can spice my drink, hhnnK?"
+He grabbed the bottle and gave his mouth a good rinse and spit before taking some large gulps. Once relief washed over his grimace, he mimicked his brother, swirling the can and cleaning any remaining run from the rim with his shirt.
 
-He grabbed the new can pointed in his direction and took some large gulps, reliefe washed over his grimmace. Once liquour poured into the second can, he mimicked his brother, swirling the can and cleaning the remaining run from the rim with his shirt. He watched anxiously while his captain tucked the bottle behind a bin and threw some cardboard on top to complete the escondeirijo.
+"Now, let's try this again, are ya'ready to cast off, sailor?"
 
-"Are you ready to take off, sailor?"
+"Ya'betcha, Cap!"
 
-"Yo betcha, Cap!"
-
-"Cheers!" They said together as their cans clacked in a toast. He took a carefull sip at first, trying to understand the strange liquid that was both sweet and spicy, bubbly and harsh, not undrinkable but certainly not easy to appreciate. Looking up from the drink with corner of his eyes, he met his brother expectant gaze.
+"Cheers!" They said together as their cans clacked in a new toast. He took a careful sip at first, trying to understand the strange liquid that was both sweet and spicy, bubbly and harsh, not undrinkable but certainly not easy to appreciate. Looking up from the drink with the corner of his eyes, he met his brother expectant gaze.
 
 "How's that now, bruh?"
 
-"Waybetter," he said with a smirk lurking on his lips.
+"Way better," he said with a smirk lurking on his lips.
 
-"See, ya just listen to me and ya'll do just fine. Your big brow knows stuff."
+"See, ya just listen to me, and ya'll do just fine. Your big bro knows stuff."
 
-"Sure thing, that's why you're the Captain." They both laughed at that and edged out of the alleyway.
+He knew his brother did. Since his thirteenth birthday months ago, his dearest friend had started hanging around with older kids in their neighbourhood. Despite missing him and feeling annoyed at being alone with the tv, he never told their mother that his brother had been slipping out instead of watching him on Saturday afternoons, but he did wonder about what was going on.
+ 
+"Sure thing, that's why you're the Captain, right?" They both laughed at that and shoved off the alleyway.
 
-**NEEDS FIXING**
+Following an intrepid wind they set sail through the streets, their course bounced off the dense, warm gusts produced by the churning stream of cars and busses and surged toward the fresh currents that blew around a nearby park. Maple trees painted in a range of greens, golden yellows and occasional fiery reds encircled a browning field.
 
-Following an intrepid wind they set sail through the streets, their course bounced off the dense, warm gusts produced by the churning stream of cars and busses and swirled toward the fresh currents that blew around a nearby park.
+While they explored, talked and joked, the liquid dwindled. Sip after sip, the odd concoction grew on his palate. In the beginning, the bitter and dry lingering aftertastes filled his mind with doubts and caution, but he kept at it, to quench the very thirst the drink produced. The sweet and fizzy cola taste that came first was a promising refuge, always inducing the next sip to wash away the last.
 
-Sip after sip, the odd concoction grew on his palate. At first the bitter and dry lingering aftertaste filled his mind with doubts and caution, but he kept at it, to quench the very thirst the drink produced. The cola sweetness and fizyness that came first was a promissing refuge, always inducing a next sip to wash away the last.
+Their stroll grew more and more relaxed until his brother looked at him with malicious eyes and announced: "Chase Tag, don't spill!" and tapped him on the shoulder, before running away holding his can high.   
 
-The park was filled with mapple trees painted in a range of greens, golden yellows and occasional earthy reds. The fresh breeze of early auntum lazilly carried some loose leaves, but proppelled him at full speed after his brother in a game of catch filled with new tastes. With carefull steps, measure to prevent any spills, he ran after his old brother that somehow always managed to stay ahead. It had been years since the old game felt so exiting, and joy overpoured out of him.
+The crisp breeze of early autumn lazily carried some loose leaves but propelled him at full speed in a game of chase filled with new tastes. With careful steps, measured to prevent tilting the drink, he ran after his old brother that somehow always managed to stay ahead. It had been years since the old game felt so exciting, and joy overpoured out of him.
 
-The troubling spice subdued, sunk under mellow, bubbly waves until he could not feel it any longer. Caution became foundness, and soon he wondered how he could have doubted his captain about such a sweet venture.
+Every few minutes their rhythm slowed to allow for another sip. The troubling spice subdued, sank under mellow, bubbly waves until he could not feel it any longer. Caution became fondness, and soon he wondered how he could have doubted his captain about such a sweet venture.
 
-His steps became less firm but the grip on the can tighter. The ground under his feet wavered - a sea of brownish, dieing grass that felt more alive than in full blown summer. He ran no more, but cruised over the liquid earth, soaring above wavy hills. At every dodge from his brother he giggled and at every taunt he laughed.
+His steps became less firm but the grip on the can tighter. The ground under his feet wavered - a sea of brownish, dying grass that felt more alive than in full-blown summer. He ran no more, but cruised over the liquid earth, soaring above wavy hills. At every dodge from his brother he giggled and at every taunt he laughed.
 
-In one of the few moments they took a break to catch their breath, his brother danced and teased him with some pop tune turned to "too slow broooow, too slow broooow."
+In one of the few moments they stopped to catch their breath, his brother danced and teased him with some pop tune turned to "too slow broooo, too slow broooo."
 
-Tired from the measured chase, and parched by the effort, he drained the remaing contents of the can and trew it aside. A fire burned inside him. Abandoning all caution, he dashed toward his target, gliding in the air that now felt hot, and letting out a wild roar. His flight was anything but straight, yet the impetous of the charge took his brother by surprise, who confused about what to do with his own can, lost precious seconds to flee.
+Tired from the measured chase, and parched by the effort, he drained the remaining contents of the can and threw it aside. A fire burned inside him. Abandoning all caution, he dashed toward his target, gliding in the air that now felt hot, and letting out a wild roar. His flight was anything but straight, yet the impetuous charge took his brother by surprise, who confused about what to do with his own can, lost precious seconds to flee.
 
 He tackled, connecting at full speed.
 
 They fell and rolled into the ground that felt solid once more, sending clouds of dust with dried leaves flying in the wake of their little wreckage.
 
-In his mind they rolled down a hill, their bouncing motion extended over a time that was too long to make sense otherwise. His nails sank into the soil in an effort to hold him steady. It took him a moment to proccess that he had stopped long ago, and it was the world that kept spinning around him. Grey clouds spiralled in the sky making his mind dizzy and his stomach sick but otherwise he felt no pain from bruises that were certainly there. Lying on his back, fingers clutching dry grass roots, he remained quiet, waiting for angry shouts.
+In his mind they rolled down a hill, their bouncing motion extended over a time that was too long to make sense otherwise. His nails sank into the soil in an effort to hold him steady. It took him a moment to process that he had stopped long ago, and it was the world that kept spinning around him. Grey clouds spiralled in the sky making his mind dizzy and his stomach sick, but otherwise he felt no pain from bruises that were certainly there. Lying on his back, fingers clutching dry grass roots, he remained quiet, waiting for angry shouts.
 
-A low giggle broke the tense silence, and without understanding why, he joinned in. Together their chuckle became a blown out laughter and grew out of control. 
+A low giggle broke the tense silence, and without understanding why, he joined in. Together their chuckle became a blown out laughter and grew out of control. 
 
-Loose words spluttered out of his mouth, "Jet'chase-" trying to form sentences between violent gasps for air "Tag'ship-" and involuntary noises "Wreck'ya-" but ultimatelly failing "Hill'fall..." as he heaved, turned into his side and contracted into a ball hugging his stomach, trying to stop the cackle and the innevitable hickups that followed.
+Loose words spluttered out of his mouth, "Jet'chase-" trying to form sentences between violent gasps for air "Tag'ship-" and involuntary noises "Wreck'ya-" but ultimately failing "Hill'fall..." as he heaved, turned into his side and contracted into a ball hugging his stomach, trying to stop the cackle and the inevitable hiccups that followed.
 
-They remained there, enjoying the warm flow of shallow jokes and comments that kept their unworried smiles drifting onward, until a first dropplet of water hit their faces, and announced the comming of a cold rain.
+They remained there, enjoying the warm flow of fumbled words and shallow jokes that kept their unworried chuckles drifting onward, until the first droplet of water hit their faces, and announced the coming of cold rain.
+
+
+
+
 
 ### Chapter VII - Depths
 
-The reurn 
-
-
-loses the bottle, brother starts dealing
+The return loses the bottle, brother starts dealing, promisses, bruises, shower ?
 
 ### Chapter VIII - Storm
 
